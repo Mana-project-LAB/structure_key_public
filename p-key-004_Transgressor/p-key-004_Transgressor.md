@@ -50,6 +50,64 @@ I thought there was a need to become the first domino that breaks the silence cr
 like a medieval court jester,  
 and so I threw this taboo topic in, without reading the room and without restraint.
 
+## 🕯️ Poem  
+The Silver Scaffold for the Saint  
+"The road to hell is paved with good intentions."
+
+Stanza I: Silver Radiance and the Poison in His Ear  
+Behind the man, a rival whispered sweet deceits:
+"The wealth of your house is but the price of blood stolen long ago.
+If you wish to flee the curse of the past, surrender that heavy silver.
+Declare that you 'accept all,' and a saint you shall become."
+The man drank the poison, believing it a gospel of salvation.
+
+Stanza II: The Offered Candelabra  
+Goaded, the man named his ancestors' valor "shame."
+He melted the silver they once plundered
+To cast a beautiful Candelabra of Diversity.
+Its silver light drowned out the rattling chains of former slaves,
+Becoming the only hearth-fire to warm his conscience.
+"I am not like them," he murmured to the mirror.
+"I am a man of light, a man of virtue, who knows no prejudice."
+Drunk on his own reflection, he quietly broke the locks of his own gates.
+
+Stanza III: The Reversed Banquet and the Stolen Sovereignty  
+Knocking at the gate were the descendants of "former victims," caked in mud.
+They held up starving children and sang songs of tragedy.
+With joy, the man threw away the keys and cleared the finest seats in his halls.
+To one child, he gave a silver spoon; a thousand shadows followed in its wake.
+"Poor souls," he uttered—his personal indulgence, his absolution.
+With every breath of those words, he felt the sins of his fathers washed away.
+As he surrendered his place piece by piece, the rival smirked in the shadows:
+"Yes, give more. That is your penance."
+
+Soon, the seating at the table shifted; language dissolved into unintelligible roars.  
+The silver plates named "Order," so cherished by the man,
+Were trampled as "useless trinkets" that failed to sate their hunger.
+"You have, therefore you must give."
+Charity became a right; gratitude twisted into contempt.
+The guilt and terror of ancient slavery bound his hands and feet;
+At the single shout of "Racism!" he forgot even the art of resistance.
+The "Laws" he once guarded were rewritten by the "Decrees" of their lands.
+Safety vanished, silence turned to riot,
+And the mayor, the guards, and the world pointed at him as the "Former Oppressor."
+The man looked back at his rival, but found only a hollow, mocking laugh.
+
+Stanza IV: The Burial of the Saint and the True Victor  
+The master is now a stranger, trembling in the corner of his own home.
+The child he once pitied now sits in his chair, gripping the silver candelabra reversed.
+With the weight of "Goodwill," he strikes the man's head.
+The hand that bludgeons him is the very hand he once cherished with "pity."
+The mayor, the law, and the prayers are already dyed in their colors;
+The suicidal impulse named "Philanthropy" is finally fulfilled.
+
+In his fading consciousness, he still smiles with satisfaction:
+"I was, until the very end, a virtuous man who did not discriminate."
+But at the brink of death, the man finally realizes—
+His "goodwill" was nothing more than a guide for the seizure of his home.
+The rival steps over the man’s corpse,
+Integrating the "purified" land into his own empire.
+
 ## 📎 Related Project File  
 Transgressor.png
 
@@ -103,6 +161,59 @@ ALT
 中世の王の道化師のように忖度による沈黙を破る最初のドミノになる必要があるかと思って   
 タブーを空気読まずに遠慮せずにぶっ込みました。
 
+## 🕯️ 【詩文】 
+タイトル『聖者のための銀の処刑台』  
+エピグラフ「地獄への道は、常に善意で舗装されている。」  
+
+第一連：銀の輝きと耳元の毒  
+男の背後で、ライバルが甘く囁いた。
+「お前の家がこれほど豊かなのは、かつて奪った血の代償だ。
+過去の呪いから逃れたいなら、その重い銀を差し出せ。
+『すべてを受け入れる』と言えば、お前は聖者になれる。」
+男はその毒を、「救済の福音」だと信じ込んだ。
+
+第二連：差し出された銀の燭台  
+唆された男は、先祖の武勇を「恥」と呼び、かつて先祖が奪い集めた銀を溶かし
+美しい**「多様性」の燭台**を鋳造した。
+その銀の光は、過去の奴隷たちの鎖の音を消し去り
+彼の良心を温める唯一の火影（ほかげ）となった。
+「私は彼らとは違う」と彼は鏡に向かって呟く。
+「私は差別をせぬ、光り輝く善人である」と。
+鏡の中の自分に酔いしれ、男は静かに鍵を壊した。
+
+第三連：逆転の餐宴と奪われた主権  
+門を叩くのは、泥にまみれた「かつての犠牲者」の末裔たち。
+彼らは飢えた子供を掲げ、悲劇の物語を歌う。
+男は歓喜して鍵を捨て、家の中の最良の席を空けた。
+一人の子に銀の匙を与えれば、その背後から千の影が続く。
+「かわいそうに」という言葉は、彼にとっての免罪符。
+その一言を吐き出すたび、先祖の罪が洗われる気がした。
+自らの居場所を譲るたびに、ライバルは陰でほくそ笑む。
+「そうだ、もっと分け与えろ。それがお前の贖罪だ。」
+やがて食卓の席順は変わり、言葉は通じぬ怒号に変わる。
+男が大切にしていた「秩序」という名の銀食器は
+彼らの空腹を満たさぬ「無用の長物」として踏みつけられた。
+「あなたは持っている、だから寄こせ」
+施しは権利となり、感謝は軽蔑へと姿を変える。
+かつての奴隷制への罪悪感と恐怖が彼の手足を縛り
+「差別だ」という一喝に、彼は抵抗する術さえ忘れてしまった。
+男が守ってきた「法」を、彼らの国の「掟」で書き換える。
+治安は消え、静寂は怒号に変わり、
+町長も、警官も、男を「かつての抑圧者」として指差した。
+男はライバルを振り返ったが、そこには空っぽの嘲笑しかなかった。
+
+第四連：聖者の埋葬と真の勝者  
+主人は今や、自分の家の片隅で震える異邦人。
+かつて施した子供が今や男の椅子に座り、銀の燭台を逆手に持ち
+「善意」という名の重石で彼の頭を打ち据える。
+男を打ち据えるのは、彼が「かわいそうに」と慈しんだ手。
+町長も、法も、祈りも、すでに彼らの色に染まり
+「博愛」という名の自殺願望は、ついに完遂された。
+消えゆく意識の中で、彼はまだ満足げに微笑む。
+「私は、最期まで差別をしない善人であった」と。
+だが死の間際、男は気付く。
+自分の「善意」は、家を乗っ取るための手引きに過ぎなかった。
+ライバルは、男の亡骸を踏み越えて、「浄化された」その土地を、自らの帝国へと組み入れた。
 
 ## 📎 【関連プロジェクトファイル】  
 Transgressor.png
