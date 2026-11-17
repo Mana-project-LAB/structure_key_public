@@ -49,7 +49,7 @@ To claim to understand God is arrogance.
 One can only trust, within the silence.
 
 Reverence toward the silent God.  
-What humans should show as reverence is continuation.  
+The reverence that human beings ought to show lies in ensuring that the chain of inheritance remains unbroken.  
 The will and effort to accomplish that.  
 For in the work of creation,  
 God commanded, “Be fruitful and multiply, and fill the earth.”  
